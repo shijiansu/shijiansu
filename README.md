@@ -1,1 +1,1 @@
-Live Simply and Think Big
+Think big and live simply.
