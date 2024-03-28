@@ -1,1 +1,1 @@
-Think big and live simply.
+Focus and Act Now!
